@@ -36,4 +36,8 @@ Therefore, the right strategy will be focus on those not-married clients. We can
 
 
 
+yee-yee-ass haircut!
+
+
+
 
